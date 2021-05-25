@@ -1,1 +1,1 @@
-# morgansucksandishomophobic.github.io
+# morgansucks.github.io
